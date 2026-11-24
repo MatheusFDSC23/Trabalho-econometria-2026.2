@@ -1,0 +1,1 @@
+# Trabalho-econometria-2026.2
